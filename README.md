@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME:Kong kanjai // ก๋อง กันใจ
+# STUDENT ID:650612077
